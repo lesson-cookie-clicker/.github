@@ -94,3 +94,7 @@ Whether you’re a casual gamer looking for a quick distraction or a dedicated p
 So, are you ready to join the cookie empire? Start clicking today and see how far your bakery can grow 🍪🔥!
 
 ---
+
+**Cookie Clicker** is the ultimate idle game for anyone who loves simple yet addictive fun 🍪. The gameplay starts with one giant cookie—just click it to earn your first cookies, then use them to buy upgrades like grandmas, farms, and factories. Soon, your production skyrockets into the millions and beyond 🚀. The game’s charm comes from its humor, endless progression, and surprising depth with achievements and prestige resets. Whether you’re playing casually during a break or chasing insane cookie numbers for hours, Cookie Clicker always keeps you hooked. It’s sweet, silly, and endlessly entertaining 🎮✨.
+
+---
